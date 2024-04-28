@@ -1,6 +1,6 @@
 ### Hi there 👋🏾
 
-👧🏾 I'm Adebisi, a data analyst and researcher with 3+ years of demonstrated impact in industry and 6+ years of achievements in academia.
+👧🏾 I'm Adebisi, a data analyst and researcher with 3+ years of achievements in industry and 6+ years of expertise in academia.
 
 ✨ I love using data to answer interesting questions and solve challenging problems.
 
